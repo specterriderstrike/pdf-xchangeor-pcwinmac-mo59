@@ -1,4 +1,4 @@
-# 
+# Ultimate PDF-XChange Editor presets for Mac OS | Elite PDF-XChange Editor presets for PC Windows. Featuring pdf editing and per diem calculations — optimized for maximum performance on every platform.
 
 
 
